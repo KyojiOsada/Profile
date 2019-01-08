@@ -23,3 +23,6 @@ https://kyojiosada.hatenablog.com/
 
 ### LinkedIn
 https://www.linkedin.com/in/kyojiosada/
+
+### Google+
+https://plus.google.com/100401097782423902341/about
